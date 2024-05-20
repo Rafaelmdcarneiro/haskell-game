@@ -1,1 +1,1 @@
-Press the arrow keys, move the rectangle. BEST GAME EVER!
+Press the arrow keys, move the rectangle. BEST GAME EVER! :)
